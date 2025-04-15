@@ -1,0 +1,1 @@
+# App Estructural Gemini
